@@ -1,0 +1,1 @@
+Highly enthusiastic student who is always interested in computer science and informational technology field with emphasis on cyber security. Seeks to apply technical aptitude and passion for computer for a suitable job. Has no prior experience but highly motivated to learn new skills.
